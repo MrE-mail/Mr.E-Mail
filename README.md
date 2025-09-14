@@ -1,4 +1,4 @@
-**<p align="middle"><ins>`. ✉️ Mr.Email's GitHub ⏾⋆.˚</ins></p>**
+**<p align="middle"><ins>`. ✉️ Mr.Email's GitHub ☎️ ࿐</ins></p>**
 
 [Untitled1047_20250914131550.png](https://ibb.co/wZ1td2v8)
 
