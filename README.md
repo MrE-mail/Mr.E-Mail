@@ -1,6 +1,6 @@
 **<p align="middle"><ins>`. ✉️ Mr.Email's GitHub ☎️ ࿐</ins></p>**
 
- ![alt text]([image-url](https://github.com/MrE-mail/Mr.E-Mail/blob/d8a49dc4e7e7b6d6c75e4e4e7b59ed5e29cc1e84/IMG_9822.png))
+ ![alt text](https://github.com/MrE-mail/Mr.E-Mail/blob/d8a49dc4e7e7b6d6c75e4e4e7b59ed5e29cc1e84/IMG_9822.png)
 
 **<p align="middle">. . . Welcome to the Github of Mr.E-Mail . .</p>**
 
