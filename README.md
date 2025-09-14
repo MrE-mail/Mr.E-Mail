@@ -2,7 +2,7 @@
 
 [Untitled1047_20250914131550.png](https://ibb.co/wZ1td2v8)
 
-**<p align="middle">. . . Welcome to the Github of Mr.E-Mail . .</p>**
+**<p align="middle">. . . Welcome to the Github of Mr.E-Mail . . .</p>**
 
 
 
