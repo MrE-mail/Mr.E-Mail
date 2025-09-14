@@ -1,7 +1,6 @@
 **<p align="middle"><ins>`. ✉️ Mr.Email's GitHub ☎️ ࿐</ins></p>**
 
-[[Untitled1047_20250914131550.png](https://ibb.co/wZ1td2v8)
-](https://github.com/MrE-mail/Test)
+ ![alt text](image-url)
 
 **<p align="middle">. . . Welcome to the Github of Mr.E-Mail . .</p>**
 
